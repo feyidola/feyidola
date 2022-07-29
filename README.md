@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @feyidola
 - 👀 I’m interested in UI/UX design (& front end in the near future)
-- 🌱 I’m currently learning UX Design on coursera with the Google UX Design Certification
+- 🌱 I’m currently learning Product design on different platforms 
 - 💞️ I’m looking for entry level design roles or UI/UX intern opportunities 
 - 📫 You can reach me via linkedin www.linkedin.com/in/oluwadolapoagunsoye
 
